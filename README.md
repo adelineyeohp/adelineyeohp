@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @adelineyeohp
-- 👀 I’m interested in original music making
-- 🌱 I’m currently learning how to compose quality music by using chords progressions.
+- 👀 I’m interested in freelance writing especially tecnical writing niche topics articles. 
+- 🌱 I’m currently learning how to write technical writing articles to showcase my writing samples to my prospective collaborators and employers.
 - 💞️ I’m not looking to collaborate at this moment.
 - 📫 How to reach me ...
 
